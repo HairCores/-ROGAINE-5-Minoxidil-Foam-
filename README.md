@@ -1,4 +1,4 @@
-# 美國 倍健 ROGAINE 5% Minoxidil Foam 落建生髮泡沫 (女士專用配方) 盒裝2支裝 – 4 個月用量 [香港代購](https://haircores.com/）
+# 美國 倍健 ROGAINE 5% Minoxidil Foam 落建生髮泡沫 (女士專用配方) 盒裝2支裝 – 4 個月用量 [香港代購](https://haircores.com/)
 
 網站：https://haircores.com/
 
